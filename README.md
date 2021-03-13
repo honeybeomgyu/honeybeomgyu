@@ -1,4 +1,4 @@
 # hello 😐
 ---
-## please use any pronouns
+## she/they/xe/it
 ## tiktok: @honeybeomgyu
