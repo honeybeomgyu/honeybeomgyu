@@ -1,10 +1,6 @@
-# hello 😐
----
-
-[![Anti-racism](https://img.shields.io/badge/%E2%9A%A0-ANTI--RACIST%20RESOURCES-yellow)](https://linktr.ee/action/)
-
+# hello!
 ---
 ## they/xe
-## tiktok: @honeybeomgyu
+## tiktok: @the.lunareclipse
 ---
-i am decently popular on tiktok
+i am decently popular on tiktok - [my website](https://the-lunareclipse.github.io)
